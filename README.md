@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @funknunk
+- 📫 How to reach me discord helker#4226 or gmail au466084@gmail.com
